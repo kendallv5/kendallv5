@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kendall Velarde
+- 👀 I’m interested in learning new skills to better myself and add value to a team
+- 🌱 I’m currently learning Business and JavaScript
+- 💞️ I’m looking to collaborate on many projects 
+- 📫 How to reach me: Email- Kendallvaf05@gmail.com or +48 575055726 (WhatsApp)
